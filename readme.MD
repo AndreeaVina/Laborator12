@@ -1,1 +1,0 @@
-am facut compulsory tot
